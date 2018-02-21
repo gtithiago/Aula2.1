@@ -1,3 +1,4 @@
 Scarlett Johansson
-Jennifer Lawrence
+Angelina Jolie
 Jessica Alba
+Charlize Theron
